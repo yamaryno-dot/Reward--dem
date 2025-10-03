@@ -1,2 +1,0 @@
-# Reward--dem
-Reward stake 
